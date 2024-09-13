@@ -6,3 +6,5 @@ Meu nome é Raissa Barbosa Zanini
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos
 ### Você pode entrar em contato comigo 📧
 raissazanini@gmail.com
+
+![](https://media.tenor.com/KDRVCsqk4bUAAAAi/your-welcome.gif)
